@@ -1,1 +1,0 @@
-# mekanism minecraft diagrams
